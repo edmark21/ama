@@ -1,2 +1,2 @@
 # ama
-to crack ama account without hassle!!!
+to crack ama blended account education without hassle!!!
